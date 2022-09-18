@@ -1,1 +1,0 @@
-# trandafirTaracan.github.io
